@@ -1,4 +1,2 @@
-![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_06_41](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/c4d9eff5-f37e-4274-8201-5f77dbe1b224)
-![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_07_05](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/b33247a9-fd88-402b-be82-e30da6b3be1a)
-![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_07_31](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/60407935-6c5a-4240-b914-bd4ccfd3a16e)
-![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_07_43](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/8e08f9e4-81e1-4076-bb45-13f814ebb181)
+![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_24_38](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/ad628996-b906-43e4-bbe4-4ad16f91c2a0)
+![Netflix Landing Page and 3 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 06_25_55](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/cec200c5-19c8-4548-906f-0ad6a539cec0)
