@@ -1,0 +1,6 @@
+![Netflix India - Watch TV Shows Online, Watch Movies Online and 1 more page - Profile 1 - Microsoft​ Edge 14-10-2023 03_38_39](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/09efde56-3163-4591-992d-28baa79483b1)
+![Netflix India - Watch TV Shows Online, Watch Movies Online and 1 more page - Profile 1 - Microsoft​ Edge 14-10-2023 03_45_24](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/c953a73b-37f9-4eea-9a7d-ee4585fc8751)
+![Netflix India - Watch TV Shows Online, Watch Movies Online and 1 more page - Profile 1 - Microsoft​ Edge 14-10-2023 03_45_46](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/693307c1-7350-4719-a6f3-f45c4ebb1b0f)
+![Netflix India - Watch TV Shows Online, Watch Movies Online and 1 more page - Profile 1 - Microsoft​ Edge 14-10-2023 03_46_14](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/5153d966-e01e-46ea-913c-e552dea39fde)
+![Netflix India - Watch TV Shows Online, Watch Movies Online and 2 more pages - Profile 1 - Microsoft​ Edge 14-10-2023 04_17_09](https://github.com/VAISHNAVIKOLASKAR/Task1-Netflix-Hompage/assets/147917518/978f4540-f6b2-41f3-a9f5-bcb82d8c087d)
+
